@@ -3,9 +3,9 @@ Pride and Prejudice
 1984
 The Catcher in the rye
 The Great Gatsby 
-Gone with the Wind
-Great Expectations
-Catch-22
-Little Women
-Jane Eyre
+Gone with the Wina
+Great Expectationa
+Catch-2a
+Little Womea
+Jane Eyra
 Lord of the Flies
