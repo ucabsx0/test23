@@ -8,3 +8,4 @@ Great Expectations
 Catch-22
 Little Women
 Jane Eyre
+Lord of the Flies
